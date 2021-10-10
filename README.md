@@ -1,2 +1,0 @@
-# chuuuuu
-wb_project
